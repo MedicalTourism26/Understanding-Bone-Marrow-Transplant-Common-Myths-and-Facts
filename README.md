@@ -10,7 +10,7 @@ Bone marrow is the soft, spongy tissue found inside certain bones. It plays an e
 
 Although Bone Marrow Transplant is an established treatment option for several conditions, patients and families often have questions about donor availability, transplant procedures, possible complications, recovery, and treatment outcomes.
 
-This article explores Bone Marrow Transplant Myths vs Facts, and provides important information about the treatment process, donor matching, eligibility, potential risks, and recovery to help patients and families make informed decisions.
+This article explores Bone Marrow Transplant Myths vs Facts(https://heydocta.com/bone-marrow-transplant-myths-vs-facts/), and provides important information about the treatment process, donor matching, eligibility, potential risks, and recovery to help patients and families make informed decisions.
 
 **What Is a Bone Marrow Transplant?**
 
